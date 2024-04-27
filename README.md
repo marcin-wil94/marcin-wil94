@@ -78,3 +78,4 @@ Praktycznie od zawsze interesowałem się komputerami i chciałem powiązać z t
 
 **Moim skromnym zdaniem, tak!** Od zawsze w grach czy to różnych w serwisach szukałem błędów. Żeby móc je potem wykorzystać na własną korzyść. W GTA V Online 10 mln $ w grze, da się kupić za około 90 zł. Dzięki luce w grze, można w 5 minut zdobyć nawet 1kk $ za darmo, co jest równowarte 9000 zł! Kiedy byłem student dorabiałem sobie, jako *Janusz Biznesu* 🥶 sprzedając dostęp do kont na portalach streamingowych, [opisałem jak to działa tutaj](https://github.com/marcin-wil94/Defekt_platnosci_online). **Jestem kreatywny, zawzięty** i pomimo kłód pod nogi się nie poddaje (co czasem jest szkodliwe dla mnie). Chce się rozwijać, od juniora manualnego po seniora automatyzującego 🫡 Jeśli chcesz dać szanse, będzie mi miło‼️ 
 ## 📩 marcin.wilk@10g.pl 
+![Widoki profilu](https://komarev.com/ghpvc/?username=marcin-wil94)
